@@ -6,6 +6,6 @@
 Compartilha, Siga-nos!
 
 <a href="https://www.instagram.com/danielmarinsoficial/">Instagram</a>.
-<a href="https://t.me/danielfelipe">Telegram</a>.
+<a href="https://t.me/Anomcy15">Telegram</a>.
 
 Ajuda muito o meu Trabalho.
