@@ -8,6 +8,6 @@ Olá, eu sou Daniel Felipe, um talento nato desde a infância! Este projeto refl
 Dica: Seja cauteloso, pois tem gente olhando o.0
 
 Conecte-se comigo
-Instagram
-Telegram
-Se você gostou do projeto ou tem sugestões, fique à vontade para contribuir. Sua ajuda é valiosa para o aprimoramento contínuo do Dashboard UI.
+[Instagram](https://www.instagram.com/danielmarinsoficial/)
+[Telegram](https://t.me/Anomcy15/)
+Se você gostou do projeto ou tem sugestões, fique à vontade para contribuir. Sua ajuda é valiosa para o aprimoramento contínuo do Projeto.
